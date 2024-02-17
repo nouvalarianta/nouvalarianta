@@ -1,4 +1,4 @@
-<h1 align="center">HOLAA</h1>
+<h1 align="center"><i>HOLAA</i></h1>
 
 - 👋 Hi, I’m @nopal
 - 👀 I’m interested in cyber security even though i still a beginner
