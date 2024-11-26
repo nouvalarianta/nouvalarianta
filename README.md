@@ -5,4 +5,4 @@
 - 🌱 I’m currently learning multiple knowledge
 - 📫 How to reach me u can mail rianta2564@gmail 
 - 😄 Pronouns: (sorry i have an identity crisis)
-- ⚡ Fun fact: i absolutely love matcha(dont hate me)
+- ⚡ Fun fact: i absolutely love matcha(dont judge me)
